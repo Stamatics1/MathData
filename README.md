@@ -1,1 +1,1 @@
-Kindly upload the assignments in repective folders
+assignment submission
